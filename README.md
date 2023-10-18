@@ -1,1 +1,2 @@
-# FarFromStupid.github.io
+JAJAJAJAJA I DID IT.
+Timur Kamalov
